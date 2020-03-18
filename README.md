@@ -1,4 +1,12 @@
 # BUSA8090assignment1
+to my classmates, 
+I don't want to upload my files and make public in last minutes in case anything happened. but However, please respect my hardwork and do not look at my code until pass the deadline. 
+Thanks 
+Sincerely
+Zhengyu Pan
+
+
+
 
 Reference:
 
